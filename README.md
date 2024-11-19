@@ -3,7 +3,7 @@
 - I'am CTF player
 - 🌱 I’m currently learning hacking
 - 💞️ I’m looking to collaborate on an projet on informatique security
-- 📫 How to reach me dodosavio04@gmail.com
+- 📫 How to reach me dmodthby@gmail.com
 - 😄 Pronouns: The_boy 💀🖤
 - ⚡ Fun fact: ...
 
